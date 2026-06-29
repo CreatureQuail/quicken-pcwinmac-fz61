@@ -1,4 +1,4 @@
-# 
+# Gratuito Quicken complementos para Mac OS | Novo Quicken complementos para PC Windows. Com edição de PDF e acesso baseado em funções — otimizado para máximo desempenho em cada plataforma.
 
 
 
